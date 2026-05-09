@@ -1,4 +1,4 @@
-
+new Panel for Procreate for macOS - layer styles and asset management offers the most advanced Procreate for macOS panel, with layer styles and asset management. Ideal for
 
 
 
